@@ -12,6 +12,18 @@ Feel free to explore and use these photos for personal projects. If you use any 
 - 💼 **LinkedIn**: [www.linkedin.com/in/arish-hussain-0786ah]
 - 📸 **Instagram**: [Arishhussain_01]
 
+https://www.facebook.com/profile.php?id=61556200166312
+
+
+
+https://www.instagram.com/arishhussain__01?igsh=eHlrOHFzMGNyMHls
+
+
+
+
+https://www.instagram.com/arishhussain__07?igsh=MW9hMWh3aHRheHo0eQ==
+
+
 ## Fun Fact
 - I believe every photo has a unique story to tell and a moment to preserve.
 
